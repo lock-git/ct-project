@@ -1,2 +1,1 @@
-zuihao jiushini
-buhao jiushibuhao
+你就是来搞笑的吧
